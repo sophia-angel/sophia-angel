@@ -8,6 +8,8 @@ Also, being a former WiiLink24 ~~dev~~ ~~&~~ worker, I love japanese Wii channel
 Special thanks to zurgeg for help with the readme! (◕‿◕✿)
 
 I do not OSS things anymore because of the following pornstars, which I will happily keep a list of on my profile now:
-[https://twitter.com/](https://twitter.com/Lillie2523)
-[https://twitter.com/](https://twitter.com/FinSnipe)
-[https://twitter.com/](https://twitter.com/larsenv)
+[https://twitter.com/Lillie2523](https://twitter.com/Lillie2523)
+
+[https://twitter.com/FinSnipe](https://twitter.com/FinSnipe)
+
+[https://twitter.com/larsenv](https://twitter.com/larsenv)
