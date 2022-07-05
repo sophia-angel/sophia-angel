@@ -13,5 +13,3 @@ I do not OSS things anymore because of the following pornstars, which I will hap
 [https://twitter.com/FinSnipe](https://twitter.com/FinSnipe)
 
 [https://twitter.com/larsenv](https://twitter.com/larsenv)
-
-[https://twitter.com/redpilled](https://twitter.com/redpilled) (Dispute filed and fulfilled, username is now taken by someone else. -6100m)
