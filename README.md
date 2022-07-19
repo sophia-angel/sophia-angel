@@ -11,5 +11,3 @@ I do not OSS things anymore because of the following pornstars, which I will hap
 [https://twitter.com/Lillie2523](https://twitter.com/Lillie2523)
 
 [https://twitter.com/FinSnipe](https://twitter.com/FinSnipe)
-
-[https://twitter.com/larsenv](https://twitter.com/larsenv)
