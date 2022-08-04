@@ -6,8 +6,3 @@ Also, being a former WiiLink24 ~~dev~~ ~~&~~ worker, I love japanese Wii channel
 [![6100m's GitHub stats](https://github-readme-stats.vercel.app/api?username=6100m)](https://github.com/anuraghazra/github-readme-stats)
 
 Special thanks to zurgeg for help with the readme! (◕‿◕✿)
-
-I do not OSS things anymore because of the following pornstars, which I will happily keep a list of on my profile now:
-[https://twitter.com/Lillie2523](https://twitter.com/Lillie2523)
-
-[https://twitter.com/FinSnipe](https://twitter.com/FinSnipe)
